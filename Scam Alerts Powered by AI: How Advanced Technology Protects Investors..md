@@ -1,4 +1,4 @@
-## Scam Alerts Powered by AI: How Advanced Technology Protects Investors**
+## Scam Alerts Powered by AI: How Advanced Technology Protects Investors
 
 ## Introduction
 
